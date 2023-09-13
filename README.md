@@ -4,8 +4,6 @@ Por Carlos Oliveira
 
 # Fontes utilizadas para o caso do Bandido da Luz Vermelha
 
-Fontes
-
 https://acervo.oglobo.globo.com/em-destaque/bandido-da-luz-vermelha-aterrorizou-sao-paulo-nos-anos-60-virou-mito-filme-22217813
 
 https://www.vice.com/pt/article/zmqan9/o-bandido-da-luz-vermelha
